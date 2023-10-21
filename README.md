@@ -1,6 +1,6 @@
 Welcome to Amazing Web Solutions Aruba
 
-Web Design and SEO Agency in Aruba ✓
+SEO Website Design & Development Agency✓
 
 AWS Aruba provides website design, SEO, and digital marketing services in Aruba. We are dedicated to providing the best possible service to our clients. Our work includes creating Responsive Web Design, Search Engine Optimization (SEO), (GMB) Management, Computer Services, Social Marketing, and Web Hosting. Small business startup or not, you’ll need a website that gets your name out there.
 
